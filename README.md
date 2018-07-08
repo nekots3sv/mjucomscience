@@ -1,5 +1,8 @@
 # mjucomscience // Hello Yod Tarn
 
+
+I'm Goodd
+
 I'm Good
 
 กับข้าวครับกับข้าว
@@ -7,3 +10,4 @@ I'm Good
 การียูไน่
 
 Go Go Go
+
