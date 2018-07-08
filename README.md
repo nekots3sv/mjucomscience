@@ -1,3 +1,3 @@
 # mjucomscience // Hello Yod Tarn
 
-I'm Good
+I'm Goodd
